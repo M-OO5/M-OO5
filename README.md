@@ -4,6 +4,9 @@
   <a href="https://veem005.straw.page">𝕀ℕ𝗙𝗢𝗥M𝔸𝕋ION</a>
 </p>
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=M-OO5&label=⌗+contestants&color=456f4c&style=plastic" alt="Profile views"/>
+</p>
+<p align="center">
   <img src="https://github.com/user-attachments/assets/61c2cc20-2a39-40d8-8773-43d160108ef4"/>
 </p>
 <p align="center">
