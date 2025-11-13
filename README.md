@@ -1,5 +1,5 @@
 <div align="center">
-<img width="1557" height="429" alt="Untitled221_20251113173339" src="https://github.com/user-attachments/assets/31c9008a-0787-4bf0-afed-7cf44eccf4f3" />
+<img width="2048" height="410" alt="Untitled223_20251113175720" src="https://github.com/user-attachments/assets/64969df5-a1f9-466e-9387-80372585ddd9" />
 
 ![tumblr_80965c44c03354934045c649909ca881_38e8ed7f_1280 gif](https://github.com/user-attachments/assets/e114986e-1fc9-42f7-9a7b-a770c0a9e53f)
 
@@ -28,26 +28,26 @@
 <table>
   <tr>
     <th>
-      <img align="center" width="350" height="350" img src="[https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e](https://github.com/user-attachments/assets/98eee953-44eb-49e3-a723-d2b689116f87)"> <br>
+      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e"> <br>
       <div align="left">
       <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
-    TEXT TEXT TEXT TEXT TEXT <br>
+    Basic Dni criteria... <br>
       <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT <br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT<br>
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
-    TEXT TEXT TEXT TEXT TEXT<br>
+    Weird Shellvision shippers <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    Supporters of problematic media and people <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    Real life gore lovers <br>
+     <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    Anyone that is toxic to my friends <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    TCOAAL FANS... <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    Fe**sh/NSFW lovers <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    TOXIC DW HATERS <br>
+      <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
+    People who say slurs. . . <br>
       </div>
       <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/706668bb-3a06-4938-93df-a99285c24e8d"> <br>
     </th>
@@ -56,7 +56,7 @@
 <!-- stop reading this-->
 
 
-<img width="1557" height="429" alt="Untitled221_20251113173337" src="https://github.com/user-attachments/assets/08b5827a-a582-43a7-9516-99f742ff82ff" />
+<img width="2048" height="410" alt="Untitled223_20251113175737" src="https://github.com/user-attachments/assets/5c8dbd39-ab93-4279-a0df-7b362b5aa7f6" />
 
 <!--
 <img width="1557" height="429" alt="Untitled221_20251113173337" src="" />
