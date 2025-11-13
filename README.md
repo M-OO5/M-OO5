@@ -21,13 +21,15 @@
   <img align="left" height="200" width="200" src="https://github.com/user-attachments/assets/28e7ab80-bee1-4b7d-9c8d-9265a7f08cba">
   
   ${{\color{#456f4c}\Large{\textsf{DO NOT INTERACT!    ⊹ ˖\ \}}}}\$  <br> 
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/61c2cc20-2a39-40d8-8773-43d160108ef4"/>
+</p>
 <table>
   <tr>
     <th>
-      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/61c2cc20-2a39-40d8-8773-43d160108ef4"> <br>
+      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e"> <br>
       <div align="left">
-      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+      <img src="https://github.com/user-attachments/assets/c2d43573-6c18-4997-b535-0529cba06cf1">
     TEXT TEXT TEXT TEXT TEXT <br>
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     TEXT TEXT TEXT TEXT TEXT <br>
@@ -46,8 +48,10 @@
       <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
     TEXT TEXT TEXT TEXT TEXT<br>
       </div>
-      <img align="center" width="350" height="350" img src="https://64.media.tumblr.com/127db83efe30a439a1db804a6636b412/6f9145e3ad009ae5-0e/s2048x3072/7b489cd94c1bffa5490ec5cc80536429371fb3eb.pnj"> <br>
+      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/706668bb-3a06-4938-93df-a99285c24e8d"> <br>
     </th>
+    
 <!--
 <img width="1557" height="429" alt="Untitled221_20251113173337" src="" />
-<img width="1557" height="429" alt="Untitled221_20251113173339" src="https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e" />
+<img width="1557" height="429" alt="Untitled221_20251113173339" src="" />
+<img width="50" height="50" alt="Untitled222_20251113174023" src="" />
