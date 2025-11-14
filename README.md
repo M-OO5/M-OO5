@@ -8,6 +8,9 @@
   <img src="https://komarev.com/ghpvc/?username=M-OO5&label=⌗+AUDIENCE&color=456f4c&style=plastic" alt="Profile views"/>
   <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/M-OO5?color=456f4c&style=plastic&abbreviated=false&label=CONTESTANTS"/>
 </p>
+
+<sub> layout creds ⠀~ ⠀[🎤](https://www.tumblr.com/omi-resources/771883681383104512/can-i-request-some-computer-themed-turquoise-and?source=share)⠀ [📺](https://www.tumblr.com/ringsang/784766436300242944/vee-tumblr-layout-f2u-credit-if?source=share)
+</div>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/61c2cc20-2a39-40d8-8773-43d160108ef4"/>
 </p>
