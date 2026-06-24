@@ -34,7 +34,7 @@
 <table>
   <tr>
     <th>
-      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e"> <br>
+      <img align="center" width="350" img src="https://github.com/user-attachments/assets/d7f8220d-1684-4fbb-9dde-2e5ac41f562e"> <br>
       <div align="left">
       <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
     Basic Dni criteria... <br>
@@ -55,7 +55,7 @@
       <img src="https://github.com/user-attachments/assets/724787e7-8652-4cf0-9ec2-78aea0f4caa8">
     People who say slurs. . . <br>
       </div>
-      <img align="center" width="350" height="350" img src="https://github.com/user-attachments/assets/706668bb-3a06-4938-93df-a99285c24e8d"> <br>
+      <img align="center" width="350" img src="https://github.com/user-attachments/assets/706668bb-3a06-4938-93df-a99285c24e8d"> <br>
     </th>
   </tr>
 </table>
